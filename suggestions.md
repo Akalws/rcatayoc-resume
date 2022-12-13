@@ -1,0 +1,2 @@
+## Changes
+# Hey there, I think your resume still needs some chnages. I can see it looks the as the professor gave us. I bassically just updated it my own resume and pushed it github it that helps.Thanks.
